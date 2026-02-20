@@ -41,7 +41,7 @@
 
 ## Notes for next time
 
-*
+* check https://joyfoodsunshine.com/the-most-amazing-chocolate-chip-cookies/
 
 ### Sources
 * [Tim Wijers - Chocolate Chip Cookies](https://recepten.timwijers.nl/chocolate-chip-cookies/)

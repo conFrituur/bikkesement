@@ -10,6 +10,8 @@ Some random shizzle that i want to try und make.
 - beerbread
 - Cinnamon raisin bread
 - https://www.kingarthurbaking.com/recipes/big-and-bubbly-cinnamon-roll-focaccia-recipe
+- https://cooking.nytimes.com/recipes/765905186-vv-Moravian-Sugar-Cake?unlocked_article_code=1.9k8.tq3N.YKbODNys5pQ7 / https://www.youtube.com/watch?v=fF-dhMdpy_0
+- Medovik (8 layer honing cake)
 
 ## Pastry
 - Tourments d'Amour
