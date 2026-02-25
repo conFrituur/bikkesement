@@ -13,7 +13,7 @@ Recept hele dunne apple slices in een cake
 
 ## Ingredienten
 
-* 4 appels (fuji, pinklady, jonagold?)
+* 4 big boi appels (fuji, pinklady, jonagold?)
 * 3 eieren
 * 157 ml melk
 * 42.5 gram boter
@@ -30,7 +30,7 @@ Recept hele dunne apple slices in een cake
 2. Maak superdunne dunne appelschijfjes en doe ze in de kom om ze te coaten.
 3. Fix de cakeblik, en haal alleen de appelschijfjes uit het beslag, en doe ze beetje bij beetje in de cakeblik. zorg dat ze horizontaal liggen.
 4. Giet het beslag dat over is over de appelschijfjes in de cakeblik.
-5. Bak de cake 50-60 minuten op 180 graden, tot de bovenkant goudbruin is.
+5. Bak de cake 60-70 minuten op 175 graden, tot de bovenkant goudbruin is.
 6. Laat de cake nog minimaal 10 min in het blik, daarna nog 15 minuten extra koelen. voor de sier nog wat poedersuiker over de bovenkant heen poederen
 
 ## Bewaren
@@ -38,6 +38,8 @@ Recept hele dunne apple slices in een cake
 * 4-5 dagen houdbaar in de koelkast.
 
 ## Notes for next time
+
+* Amandelschaafsel on top? check andere recepten op google 
 
 ### Sources
 * [hungryhappens.net -invisible-apple-cake-gateau](https://hungryhappens.net/invisible-apple-cake-gateau-invisible/)
